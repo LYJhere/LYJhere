@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LYJhere
-- 👀 I’m interested in deep clusterinh
+- 👀 I’m interested in deep clustering
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on you
 - 📫 You can find me by my Gmail(l1730114051@gmail.com)
